@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @AmiraliZareMirakabad
+- 👋 Hi, I’m Amirali ZareMirakabad
 
 
